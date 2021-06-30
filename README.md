@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @YRTommy
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+YRTommy/YRTommy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+I'm a rookie here.i've always been interest in learning programing languages.
+My sins need holy water feeling it washing over me.My favorite rap ancestor is Eminem.i wanna be a nea rapstar.
+check my punchlines here.ayo!flexing on haters ain't dope,man!Shut out to my fucking nasty soul.For rescuing.!
